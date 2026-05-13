@@ -1,4 +1,4 @@
-
+Download smart Scripts for berry avenue rp for berry avenue rp, the best script available, featuring one-hit kill and auto-sell. This powerful tool ensures you have the upper hand
 
 
 
